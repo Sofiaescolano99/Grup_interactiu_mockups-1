@@ -18,5 +18,3 @@ Tarea realizada por Paqui Valero y Sofia Escolano
 [propuesta 5](Captura de pantalla 2020-12-10 a las 12.07.14.png)
 [propuesta 6](Captura de pantalla 2020-12-10 a las 12.08.23.png)
 
-
-
